@@ -12,3 +12,6 @@ Akagi201's life
 - 27/02/2014 Leave Hikvision to startup my own business.
 
 - 01/05/2014 Started a project [AKmaker](http://akmaker.com)
+
+- 08/10/2014 Join Qiniu Cloud Storage QGenius team.
+

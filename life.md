@@ -15,3 +15,6 @@ Akagi201's life
 
 - 08/10/2014 Join Qiniu Cloud Storage QGenius team.
 
+- 03/20/2015 Leave Qiniu Cloud Storage, to work more happily.
+
+- 03/30/2015 Got Cereson offer, to work on the creative roboshop, To be a pythonist.

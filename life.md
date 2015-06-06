@@ -22,3 +22,5 @@ Akagi201's life
 - 05/16/2015 股票开户, 开启投机的赚钱方式.
 
 - 05/17/2015 开始认识到钱的重要性, 开始阅读经济作品, 开始记录所有现金账.
+
+- 06/05/2015 I am falling in love with Y2lyY2xl. Hope we will have a good ending.

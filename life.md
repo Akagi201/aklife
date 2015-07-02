@@ -24,3 +24,5 @@ Akagi201's life
 - 05/17/2015 开始认识到钱的重要性, 开始阅读经济作品, 开始记录所有现金账.
 
 - 06/05/2015 I am falling in love with Y2lyY2xl. Hope we will have a good ending.
+
+- 07/02/2015 Y2lyY2xl跟他男朋友住在一起, 要结婚了. 我的世界不再有爱情了.

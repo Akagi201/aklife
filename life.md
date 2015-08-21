@@ -25,4 +25,5 @@ Akagi201's life
 
 - 06/05/2015 I am falling in love with Y2lyY2xl. Hope we will have a good ending.
 
-- 07/02/2015 Y2lyY2xl跟他男朋友住在一起, 要结婚了. 我的世界不再有爱情了.
+- 07/02/2015 Y2lyY2xl跟那个男的住在一起, 要结婚了. 我的世界不再有爱情了.
+- 08/20/2015 Y2lyY2xl跟那个男的做恶心的事情了, 我选择离开, 结束痛苦.

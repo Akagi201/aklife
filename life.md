@@ -28,3 +28,6 @@ Akagi201's life
 - 07/02/2015 Y2lyY2xl跟那个男的住在一起, 要结婚了. 我的世界不再有爱情了.
 - 08/20/2015 Y2lyY2xl跟那个男的做恶心的事情了, 我选择离开, 结束痛苦.
 - 09/24/2015 人生苦短, 何必活在痛苦中. 这次真的离开了.
+- 11/11/2015 Started life in UPYUN. Here I am working on what I love, and I*
+will also make the people around me love me. And forget everything in Shanghai.
+

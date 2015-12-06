@@ -23,11 +23,6 @@ Akagi201's life
 
 - 05/17/2015 开始认识到钱的重要性, 开始阅读经济作品, 开始记录所有现金账.
 
-- 06/05/2015 I am falling in love with Y2lyY2xl. Hope we will have a good ending.
+- 11/11/2015 Started life in UPYUN. Here I am working on what I love, and I will also make the people around me love me. And forget everything in Shanghai.
 
-- 07/02/2015 Y2lyY2xl跟那个男的住在一起, 要结婚了. 我的世界不再有爱情了.
-- 08/20/2015 Y2lyY2xl跟那个男的做恶心的事情了, 我选择离开, 结束痛苦.
-- 09/24/2015 人生苦短, 何必活在痛苦中. 这次真的离开了.
-- 11/11/2015 Started life in UPYUN. Here I am working on what I love, and I*
-will also make the people around me love me. And forget everything in Shanghai.
-
+- 12/06/2015 Delete the fucking silly things in my timeline!!
